@@ -2,7 +2,9 @@
 - ✨ I’m interested in all things science, art and tech
 - 🌱 I’m currently studying engineering 
 -  Pronouns: she/her
+-  
   "I solemnly swear I'm up to no good"🤭
+
 PESU'28
 
 <!---
